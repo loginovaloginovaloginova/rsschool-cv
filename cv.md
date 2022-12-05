@@ -8,4 +8,3 @@ Now i study course from coursera "Google Progect Management"
 My English is B2.
 
  ✨Contact with me on [LinkedIn](https://www.linkedin.com/in/loginova-tatiana/)
- 
