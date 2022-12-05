@@ -7,5 +7,5 @@ I`m an IT PM at Saber. Corporate software & desktop apps development. Creating a
 Now i study course from coursera "Google Progect Management"   
 My English is B2.
 
- ✨MContact with me on [LinkedIn](ttps://www.linkedin.com/in/loginova-tatiana/)
+ ✨MContact with me on [LinkedIn](https://www.linkedin.com/in/loginova-tatiana/)
  
